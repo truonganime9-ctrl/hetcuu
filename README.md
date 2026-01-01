@@ -1,2 +1,0 @@
-# hetcuu
-hetcuu
